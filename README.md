@@ -2,6 +2,3 @@
 www.42clothing.com
 
 © 2026 42 Clothes. All rights reserved.
-
-The original artwork on this garment is owned by 42 Clothes. Reproducing, printing, or using it on other merchandise requires prior written permission from 42 Clothes.
-I file grafici allegati sono forniti esclusivamente per il preventivo e, previa nostra conferma, per la stampa delle 32 felpe indicate nella presente richiesta. 42 Clothes si riserva tutti i diritti di cui è titolare sulle grafiche. Vi chiediamo di non condividere, pubblicare o riutilizzare i file o le grafiche per altri ordini, per il vostro portfolio o sui social media senza il nostro previo consenso scritto.
